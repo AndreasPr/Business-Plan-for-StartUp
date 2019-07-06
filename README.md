@@ -1,2 +1,2 @@
 # Business-Plan-for-StartUp
-All the important steps in order to begin a startUp 
+All the important steps in order to begin a startUp in Greek language.
